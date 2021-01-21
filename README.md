@@ -1,5 +1,5 @@
 ### Hi there 👋
-#### Check out my first published app on the Play Store!
+#### Check out my first published app on the Play Store 📻
 
 <a 
   href='https://play.google.com/store/apps/details?id=com.lofinuki.lofinuki&pcampaignid=pcampaignidMKT-Other-global-all-co-prtnr-py-PartBadge-Mar2515-1'>
