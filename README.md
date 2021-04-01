@@ -1,6 +1,6 @@
 ### Hi there 👋
 #### Check out my first published app on the Play Store 📻 ⭐⭐⭐⭐⭐ 4.9 star rating 
-1️⃣5️⃣0️⃣➕ Downloads
+2️⃣0️⃣0️⃣➕ Downloads
 
 <a 
   href='https://play.google.com/store/apps/details?id=com.lofinuki.lofinuki&pcampaignid=pcampaignidMKT-Other-global-all-co-prtnr-py-PartBadge-Mar2515-1'>
