@@ -7,7 +7,7 @@
 
 ⭐⭐⭐⭐⭐ 4.64 star rating 
 
-5️⃣0️⃣0️⃣➕ Downloads
+6️⃣0️⃣0️⃣➕ Downloads
 
 🌎🌍🌏 Installed in over 65 countries
 
