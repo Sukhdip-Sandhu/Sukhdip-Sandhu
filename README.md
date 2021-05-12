@@ -1,8 +1,15 @@
-### Hi there 👋
-#### Check out my first published app on the Play Store 📻 ⭐⭐⭐⭐⭐ 4.64 star rating 
-5️⃣0️⃣0️⃣➕ Downloads
+## Hi there! <img src="https://c.tenor.com/EQD2BTN_JPwAAAAj/good-evening-waving-hands.gif" width="40" height="40" /> check out my first app on the Play Store! 
 
 <a 
   href='https://play.google.com/store/apps/details?id=com.lofinuki.lofinuki&pcampaignid=pcampaignidMKT-Other-global-all-co-prtnr-py-PartBadge-Mar2515-1'>
-  <img alt='Get it on Google Play' src='https://play.google.com/intl/en_us/badges/static/images/badges/en_badge_web_generic.png' width="20%"/>
+  <img alt='Get it on Google Play' src='https://play-lh.googleusercontent.com/mm9yoa173bxyccjFmbrveMnxqt-0g_0UoUfRMxI8Nqt6vKG-yEV7-o0Ow17-zAHIYCOx=s180-rw'/>
 </a>
+
+⭐⭐⭐⭐⭐ 4.64 star rating 
+
+5️⃣0️⃣0️⃣➕ Downloads
+
+🌎🌍🌏 Installed in over 65 countries
+
+🎶📻✨ Steamed over 6000 times
+
