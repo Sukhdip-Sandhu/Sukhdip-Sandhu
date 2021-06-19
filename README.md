@@ -5,11 +5,11 @@
   <img alt='Get it on Google Play' src='https://play-lh.googleusercontent.com/mm9yoa173bxyccjFmbrveMnxqt-0g_0UoUfRMxI8Nqt6vKG-yEV7-o0Ow17-zAHIYCOx=s180-rw'/>
 </a>
 
-⭐⭐⭐⭐⭐ 4.64 star rating 
+⭐⭐⭐⭐⭐ 4.72 star rating 
 
-6️⃣0️⃣0️⃣➕ Downloads
+1️⃣0️⃣0️⃣0️⃣➕ Downloads
 
-🌎🌍🌏 Installed in over 65 countries
+🌎🌍🌏 Installed in over 90 countries
 
-🎶📻✨ Steamed over 6000 times
+🎶📻✨ Steamed over 10,000 times
 
