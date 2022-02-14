@@ -1,4 +1,4 @@
-## Hi there! <img src="https://c.tenor.com/EQD2BTN_JPwAAAAj/good-evening-waving-hands.gif" width="40" height="40" /> check out my first app on the Play Store! 
+## hi there! <img src="https://c.tenor.com/EQD2BTN_JPwAAAAj/good-evening-waving-hands.gif" width="40" height="40" /> check out my first app on the play store! 
 
 <a 
   href='https://play.google.com/store/apps/details?id=com.lofinuki.lofinuki&pcampaignid=pcampaignidMKT-Other-global-all-co-prtnr-py-PartBadge-Mar2515-1'>
@@ -7,11 +7,11 @@
 
 ⭐⭐⭐⭐⭐ 4.64 star rating 
 
-2️⃣5️⃣0️⃣0️⃣➕ Downloads
+2️⃣5️⃣0️⃣0️⃣➕ downloads
 
-🌎🌍🌏 Installed in over **100** **countries** !!
+🌎🌍🌏 installed in over **100** **countries** !!
 
-🎶📻✨ Steamed over 30,000 times
+🎶📻✨ steamed over 30,000 times
 
 ---
 <br>
