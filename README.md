@@ -7,11 +7,11 @@
 
 ⭐⭐⭐⭐⭐ 4.8 star rating 
 
-5️⃣0️⃣0️⃣0️⃣➕ downloads
+1️⃣0️⃣0️⃣0️⃣0️⃣➕ downloads
 
 🌎🌍🌏 installed in over **100** **countries** !!
 
-🎶📻✨ steamed over 70,000 times
+🎶📻✨ steamed over 130,000 times
 
 ---
 <br>
