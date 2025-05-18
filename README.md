@@ -9,7 +9,9 @@
 
 1️⃣0️⃣0️⃣0️⃣0️⃣➕ downloads
 
-🌎🌍🌏 installed in over **100** **countries** !!
+💯💯💯 350 monthly listeners:)
+
+🌎🌍🌏 installed in over **160** **countries** !!
 
 🎶📻✨ steamed over 130,000 times
 
